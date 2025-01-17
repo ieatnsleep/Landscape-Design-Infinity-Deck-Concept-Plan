@@ -1,5 +1,4 @@
 # Landscape-Design-Infinity-Deck-Concept-Plan
-
 Previously done Landscape Design project focusing on creative and designing a natural forest garden.
 
 ## Slide 1: Design concept, Bubble diagram, Proposed circulation plan and Proposed topography plan
